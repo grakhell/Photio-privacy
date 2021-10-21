@@ -1,0 +1,1 @@
+Privacy policy for Photio app
