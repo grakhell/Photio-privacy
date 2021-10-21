@@ -1,1 +1,1 @@
-Photio_privacy
+Privacy policy for Photio app
